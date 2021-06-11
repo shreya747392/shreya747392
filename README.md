@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @shreya747392
+- 👀 I’m interested in learning new languages and creatings stuffs be it web develpoment/android app/ui/ux designs
+- 🌱 I’m currently learning c and kotlin
+- 💞️ I’m looking to collaborate on new challenging projects
+- 📫 How to reach me ...via linkdin profile__https://www.linkedin.com/in/shreya-139910193
